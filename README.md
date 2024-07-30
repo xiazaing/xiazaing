@@ -7,7 +7,7 @@ https://xiazai.com/
 
 网站会每日保持高质量更新，请大家先收藏本链接，防止迷路！
 
-官方QQ群：![]993459542]()http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=aQmONMsb8Q-MVy8XA6nHhjjAv3el0gwd&authKey=5Wz3wOXu2zXFq3SZpVNwL2yJx036V34bvI4i%2B1hrgaYcjc3maVsuJIEcjeOwaBnH&noverify=0&group_code=993459542)
+官方QQ群：![]993459542](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=aQmONMsb8Q-MVy8XA6nHhjjAv3el0gwd&authKey=5Wz3wOXu2zXFq3SZpVNwL2yJx036V34bvI4i%2B1hrgaYcjc3maVsuJIEcjeOwaBnH&noverify=0&group_code=993459542)
 
 
 <!--
