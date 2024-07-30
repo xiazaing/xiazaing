@@ -1,5 +1,5 @@
 # 永久防迷路链接 
-![XIAZAIYOU](https://steamuserimages-a.akamaihd.net/ugc/2475369566604401672/4CB15E39B29B5C874FBF69DC6DEC7F013A9EFACE/?imw=5000&imh=5000&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=false)
+![XIAZAIYOU](https://xiazaing.com/wp-content/uploads/2024/04/logo1.png)
 
 ## 虾仔游戏官网[xiazaing.com](https://xiazaing.com/)
 
