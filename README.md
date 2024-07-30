@@ -1,5 +1,6 @@
 # 永久防迷路链接 
-![XIAZAIYOU]([https://xiazaing.com/wp-content/uploads/2024/04/logo1.png](https://steamuserimages-a.akamaihd.net/ugc/2475369566604401672/4CB15E39B29B5C874FBF69DC6DEC7F013A9EFACE/?imw=5000&imh=5000&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=false))
+![XIAZAIYOU](https://steamuserimages-a.akamaihd.net/ugc/2475369566604401672/4CB15E39B29B5C874FBF69DC6DEC7F013A9EFACE/?imw=5000&imh=5000&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=false)
+
 ## 虾仔游戏官网[xiazaing.com](https://xiazaing.com/)
 
 上千款免费游戏资源，包含Switch游戏、电脑游戏等等。如果打不开请使用国际浏览器，例如Edge，谷歌浏览器。
