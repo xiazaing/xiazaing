@@ -1,5 +1,5 @@
 # 永久防迷路链接 
-![XIAZAIYOU](https://storage.googleapis.com/bitly-image-upload/Io7ufmiEK9E)
+![XIAZAIYOU](https://storage.googleapis.com/bitly-image-upload/Io7ufMmDz8z)
 
 ## 虾仔游戏官网[xiazaing.com](https://xiazaing.com/) 点击获取每日更新
 
