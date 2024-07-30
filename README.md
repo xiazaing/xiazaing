@@ -1,6 +1,6 @@
 # 永久防迷路链接 
-
-## 虾仔游戏官网[xiazai.com](https://xiazai.com/)
+![XIAZAIYOU](https://xiazaing.com/wp-content/uploads/2024/04/logo1.png)
+## 虾仔游戏官网[xiazaing.com](https://xiazaing.com/)
 
 上千款免费游戏资源，包含Switch游戏、电脑游戏等等。如果打不开请使用国际浏览器，例如Edge，谷歌浏览器。
 
